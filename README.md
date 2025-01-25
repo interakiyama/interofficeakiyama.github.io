@@ -1,2 +1,0 @@
-# interofficeakiyama.github.io
-test
